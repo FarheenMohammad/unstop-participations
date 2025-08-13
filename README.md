@@ -42,7 +42,8 @@
  8. **Case Masters: Industry Solution Summit – EMBARK 2025, IIT Madras**
     The Case Masters: Industry Solution Summit was a national-level case study competition organized by the Department of Management Studies (DoMS), IIT Madras, as part of EMBARK 2025. In collaboration with CavinKare, the challenge invited participants to analyze real-world business problems and propose strategic, actionable solutions.
 The competition comprised two rounds:
-**Round 1:** Executive Summary Submission – Participants analyzed an industry case and submitted a strategic solution addressing key problem areas, including market expansion, product differentiation, go-to-market strategy, and brand positioning for CavinKare’s dairy beverage portfolio.
+
+    **Round 1:** Executive Summary Submission – Participants analyzed an industry case and submitted a strategic solution addressing key problem areas, including market expansion, product differentiation, go-to-market strategy, and brand positioning for CavinKare’s dairy beverage portfolio.
 
       Evaluation was based on depth of analysis, creativity, feasibility, and clarity of communication.
       I successfully submitted my Round 1 executive summary and am awaiting the shortlisting results for the campus finale.

@@ -22,6 +22,6 @@
  4. **Finance Quiz – Tough Tongue AI (Best Mock Interview Platform)**
 The Finance Quiz was an online competition hosted by Tough Tongue AI, an AI-powered mock interview platform designed to prepare students and professionals for real-world interviews. This quiz, inspired by investment banking assessments, evaluated participants on core finance concepts such as valuation, financial modeling, accounting, and market analysis — skills essential for breaking into top investment banks.
 
-I successfully completed the quiz and received my results.
+   I successfully completed the quiz and received my results.
 
-Quiz Results: https://unstop.com/quiz/finance-quiz-tough-tongue-ai-best-mock-interview-platform-tough-tongue-ai-1532578/online-assessment/346069?d=eyJwYWdlIjoxLCJ0ZWFtSWQiOjM2ODA5MjkxLCJhc3NvY2lhdGlvbklkIjoxMjY2MDk2fQ==
+   Quiz Results: https://unstop.com/quiz/finance-quiz-tough-tongue-ai-best-mock-interview-platform-tough-tongue-ai-1532578/online-assessment/346069?d=eyJwYWdlIjoxLCJ0ZWFtSWQiOjM2ODA5MjkxLCJhc3NvY2lhdGlvbklkIjoxMjY2MDk2fQ==

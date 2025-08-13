@@ -28,3 +28,13 @@
     The Product Management Quiz was an online competition hosted by Tough Tongue AI, an AI-powered mock interview platform that prepares students and professionals for real-world interviews. This quiz assessed participants on key product management competencies, including product sense, prioritization, analytics, and market estimation.
     
     Quiz Results: https://unstop.com/quiz/product-management-quiz-tough-tongue-ai-best-mock-interview-platform-tough-tongue-ai-1532470/online-assessment/346025?d=eyJwYWdlIjoxLCJ0ZWFtSWQiOjM2ODA5MzkxLCJhc3NvY2lhdGlvbklkIjoxMjY1OTYwfQ==
+
+ 6. **Coding Quiz – Tough Tongue AI (Best Mock Interview Platform)**
+    The Coding Quiz was an online competition hosted by Tough Tongue AI, an AI-powered mock interview platform that prepares students and professionals for real-world coding and system design interviews. This quiz evaluated participants’ problem-solving abilities, coding logic, and understanding of scalable system design principles.
+    
+    Quiz Results: https://unstop.com/quiz/coding-quiz-tough-tongue-ai-best-mock-interview-platform-tough-tongue-ai-1532487/online-assessment/346026?d=eyJwYWdlIjoxLCJ0ZWFtSWQiOjM2ODA5NDE3LCJhc3NvY2lhdGlvbklkIjoxMjY1OTc3fQ==
+
+ 7. **Consulting Quiz – Tough Tongue AI (Best Mock Interview Platform)**
+    The Consulting Quiz was an online competition hosted by Tough Tongue AI, an AI-powered mock interview platform designed to prepare students and professionals for real-world case interviews and consulting challenges. This quiz evaluated participants’ abilities in business strategy, market sizing, profitability analysis, and structured problem-solving — skills essential for consulting roles.
+
+    Quiz Results: https://unstop.com/quiz/consulting-quiz-tough-tongue-ai-best-mock-interview-platform-tough-tongue-ai-1532572/online-assessment/346068?d=eyJwYWdlIjoxLCJ0ZWFtSWQiOjM2ODA5NDM1LCJhc3NvY2lhdGlvbklkIjoxMjY2MDg2fQ==

@@ -38,3 +38,13 @@
     The Consulting Quiz was an online competition hosted by Tough Tongue AI, an AI-powered mock interview platform designed to prepare students and professionals for real-world case interviews and consulting challenges. This quiz evaluated participants’ abilities in business strategy, market sizing, profitability analysis, and structured problem-solving — skills essential for consulting roles.
 
     Quiz Results: https://unstop.com/quiz/consulting-quiz-tough-tongue-ai-best-mock-interview-platform-tough-tongue-ai-1532572/online-assessment/346068?d=eyJwYWdlIjoxLCJ0ZWFtSWQiOjM2ODA5NDM1LCJhc3NvY2lhdGlvbklkIjoxMjY2MDg2fQ==
+
+ 8. **Case Masters: Industry Solution Summit – EMBARK 2025, IIT Madras**
+    The Case Masters: Industry Solution Summit was a national-level case study competition organized by the Department of Management Studies (DoMS), IIT Madras, as part of EMBARK 2025. In collaboration with CavinKare, the challenge invited participants to analyze real-world business problems and propose strategic, actionable solutions.
+The competition comprised two rounds:
+    * **Round 1:** Executive Summary Submission – Participants analyzed an industry case and submitted a strategic solution addressing key problem areas, including market expansion, product differentiation, go-to-market strategy, and brand positioning for CavinKare’s dairy beverage portfolio.
+
+      Evaluation was based on depth of analysis, creativity, feasibility, and clarity of communication.
+      I successfully submitted my Round 1 executive summary and am awaiting the shortlisting results for the campus finale.
+      Submission Link: https://drive.google.com/file/d/109BzNCePiZBBFqODSTqXPZq9BdRryhKc/view?usp=drivesdk
+

@@ -22,7 +22,7 @@ The competition comprised two rounds:
 
     Submission Round (10–25 Aug 2025): Articles are evaluated on originality, relevance to the theme, analytical depth, and clarity of presentation. One article per domain will be published, with winner and runner-up certificates awarded to the top two pieces overall.
 
-   I have submitted my article, presenting an insightful perspective on the chosen topic of Finance. Here is my submission: https://drive.google.com/file/d/1wi0dfjegGseSIsf3zvOeTEK8HoGPpkxN/view?usp=drivesdk
+    I have submitted my article, presenting an insightful perspective on the chosen topic of Finance. Here is my submission: https://drive.google.com/file/d/1wi0dfjegGseSIsf3zvOeTEK8HoGPpkxN/view?usp=drivesdk
 
 
 

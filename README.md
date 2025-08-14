@@ -8,3 +8,12 @@ The competition comprised two rounds:
       I successfully submitted my Round 1 executive summary and am awaiting the shortlisting results for the campus finale.
       Submission Link: https://drive.google.com/file/d/109BzNCePiZBBFqODSTqXPZq9BdRryhKc/view?usp=drivesdk
 
+ 2. **ProduScope 2025: The Product Case Study Competition – E-Cell, IIT Guwahati**
+    A national-level product management competition by E-Cell, IIT Guwahati, challenging participants to analyze a product, identify improvement areas, and propose innovative solutions.
+    **Round 1 (10–19 Aug 2025):** Case submission with strategies focusing on usability, scalability, and market impact.
+    **Round 2 (23–25 Aug 2025):** Top 10 teams present their solutions live to judges.
+    I have submitted my Round 1 entry, presenting a research-backed, feasible product strategy. Here is my submission: https://docs.google.com/presentation/d/1cSzEWInskPABDj2QNC94xsjnsrNIy9Mb/edit?usp=drivesdk&ouid=107460595926397204494&rtpof=true&sd=true
+
+
+
+

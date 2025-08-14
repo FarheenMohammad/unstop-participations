@@ -17,6 +17,14 @@ The competition comprised two rounds:
 
     I have submitted my Round 1 entry, presenting a research-backed, feasible product strategy. Here is my submission: https://docs.google.com/presentation/d/1cSzEWInskPABDj2QNC94xsjnsrNIy9Mb/edit?usp=drivesdk&ouid=107460595926397204494&rtpof=true&sd=true
 
+ 4. **SAMVAD: Call for Articles – WeSchool, Mumbai**
+    SAMVAD is a national-level article writing competition organized by S.P. Mandali's Prin. L. N. Welingkar Institute of Management Development & Research, Mumbai (WeSchool). The August 2025 edition revolves around the theme “Media Lens”, exploring how media shapes perception, impacts strategy, and influences decision-making across industries. Participants can choose one topic from HR, Finance, Operations, Marketing, or General Management and submit an original 800–1200 word article, supported with research, statistics, and visuals.
+
+    Submission Round (10–25 Aug 2025): Articles are evaluated on originality, relevance to the theme, analytical depth, and clarity of presentation. One article per domain will be published, with winner and runner-up certificates awarded to the top two pieces overall.
+
+   I have submitted my article, presenting an insightful perspective on the chosen topic of Finance. Here is my submission: https://drive.google.com/file/d/1wi0dfjegGseSIsf3zvOeTEK8HoGPpkxN/view?usp=drivesdk
+
+
 
 
 

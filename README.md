@@ -6,8 +6,10 @@ The competition comprised two rounds:
    **Round 1:** Executive Summary Submission – Participants analyzed an industry case and submitted a strategic solution addressing key problem areas, including market expansion, product differentiation, go-to-market strategy, and brand positioning for CavinKare’s dairy beverage portfolio.
 
    Evaluation was based on depth of analysis, creativity, feasibility, and clarity of communication.
-      I successfully submitted my Round 1 executive summary and am awaiting the shortlisting results for the campus finale.
-      Submission Link: https://drive.google.com/file/d/109BzNCePiZBBFqODSTqXPZq9BdRryhKc/view?usp=drivesdk
+
+   I successfully submitted my Round 1 executive summary and am awaiting the shortlisting results for the campus finale.
+
+   Submission Link: https://drive.google.com/file/d/109BzNCePiZBBFqODSTqXPZq9BdRryhKc/view?usp=drivesdk
 
  2. **ProduScope 2025: The Product Case Study Competition – E-Cell, IIT Guwahati**
 
@@ -41,6 +43,11 @@ The competition comprised two rounds:
 
     Here is my submission: https://drive.google.com/file/d/13HuWCbNUoobKTxpBTfz3PrAxQVlBv2z8/view?usp=drivesdk](https://drive.google.com/file/d/1WKfUFd9gZr-8cp0hp6ZcdNzXUKeI_dXG/view?usp=drivesdk
 
+ 6. **The Empower League – Infinity PDP Edition**
+
+    I participated and qualified Round 1 (Online Quiz) and prepared a PowerPoint presentation for Round 2. My presentation covers topics like self-awareness, decision-making, communication, leadership, personal branding, and conflict resolution. I chose the topic **"Personal Branding for Career Success – Building your image in a competitive job market"**, focusing on strategies to create a strong professional image, enhance visibility, and stand out in a competitive career landscape.
+
+    My submission: https://drive.google.com/file/d/1OUElNa_uDyYhlnfXWqvn11Yi2Xph-HJH/view?usp=drivesdk
 
 
 

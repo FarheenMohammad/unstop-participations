@@ -39,7 +39,7 @@ The competition comprised two rounds:
 
     A national-level case writing competition hosted by Balaji Institute of Technology & Management, Sri Balaji University, Pune, in collaboration with Maruti Suzuki India Ltd., aimed at fostering critical thinking, problem-solving, and analytical skills among students and young professionals. Open to UG/PG students and early-career professionals (teams of 2–6), the event features a preliminary case analysis and written report, followed by an offline final round with on-the-spot case presentations. Judging focuses on problem analysis, innovation, feasibility, presentation, and teamwork. Prizes include cash awards, certificates, internships, and mentorship opportunities.
 
-    Here is my submission: https://drive.google.com/file/d/13HuWCbNUoobKTxpBTfz3PrAxQVlBv2z8/view?usp=drivesdk
+    Here is my submission: https://drive.google.com/file/d/13HuWCbNUoobKTxpBTfz3PrAxQVlBv2z8/view?usp=drivesdk](https://drive.google.com/file/d/1WKfUFd9gZr-8cp0hp6ZcdNzXUKeI_dXG/view?usp=drivesdk
 
 
 

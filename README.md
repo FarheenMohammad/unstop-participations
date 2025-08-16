@@ -77,4 +77,4 @@ The competition comprised two rounds:
 
      This article, written for Vitta 2025, explores the theme “Fintech Revolution.” Rooted in the legacy of the Finance and Investment Cell, Shri Ram College of Commerce, and its flagship publication’s tradition of intellectual inquiry, the piece traces the evolution of financial technology from its origins in the 1960s to the present era of digital finance. It examines key innovations such as ATMs, internet banking, mobile payments, blockchain, and AI-powered financial services, while also addressing regulatory, ethical, and societal challenges. The article aims to offer a comprehensive, research-driven, and forward-looking perspective on how fintech is reshaping global finance and investment, aligning with Vitta’s spirit of curiosity, rigor, and analytical depth.
 
-     Here is my submission: https://drive.google.com/file/d/1RSFFjdW9LxMU5jeo6HKUvsiT--fIoPY5/view?usp=drivesdk
+     Here is my submission: https://drive.google.com/file/d/1C7G3KyumKsSZo1ceHoGxbyr1ETyNwzwm/view?usp=drivesdk

@@ -49,6 +49,14 @@ The competition comprised two rounds:
 
     My submission: https://drive.google.com/file/d/1OUElNa_uDyYhlnfXWqvn11Yi2Xph-HJH/view?usp=drivesdk
 
+ 7. **Consultra | Rush4Rush 2025**
+
+    The flagship national-level case competition by Universal Consulting Group (UCG) at Universal AI University, with Skilled Sapiens as the knowledge partner. The competition challenges B-school students to solve real-world business problems across three rounds – StratIQ Quiz, Case Crack, and Boardroom Battle – with a prize pool of ₹38,000.
+
+    I successfully qualified Round 1 (StratIQ Quiz) and have submitted my Round 2 (Case Crack) strategic deck for evaluation.
+
+    Click here to view my submission: https://drive.google.com/file/d/1GTulaS7T4ePomaSWwxaQxDIxhe1NNNZO/view?usp=drivesdk
+
 
 
 

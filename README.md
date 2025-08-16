@@ -57,8 +57,10 @@ The competition comprised two rounds:
 
     Click here to view my submission: https://drive.google.com/file/d/1GTulaS7T4ePomaSWwxaQxDIxhe1NNNZO/view?usp=drivesdk
 
+ 8. ReWeave 2025 – The Green Thread: Rethinking Threads of Sustainability
 
+    Organizer: Sanrakshan – Annual Business Sustainability Conclave, IIM Lucknow
 
+    ReWeave 2025 is a premier national case competition that challenges participants to rethink supply chains and operations through the lens of sustainability. The competition focuses on transforming traditional business models into sustainable, circular, and efficient systems, balancing environmental impact, cost efficiency, and customer experience.
 
-
-
+    Here is my submission for the competition: https://drive.google.com/file/d/1PQ3nHGd7UAmqm6GwVQSRwHx-g9iDqkmY/view?usp=drivesdk

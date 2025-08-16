@@ -57,7 +57,7 @@ The competition comprised two rounds:
 
     Click here to view my submission: https://drive.google.com/file/d/1GTulaS7T4ePomaSWwxaQxDIxhe1NNNZO/view?usp=drivesdk
 
- 8. ReWeave 2025 – The Green Thread: Rethinking Threads of Sustainability
+ 8. **ReWeave 2025 – The Green Thread: Rethinking Threads of Sustainability**
 
     Organizer: Sanrakshan – Annual Business Sustainability Conclave, IIM Lucknow
 

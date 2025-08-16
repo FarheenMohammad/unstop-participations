@@ -66,3 +66,9 @@ The competition comprised two rounds:
     I participated as part of a team of 4, and we qualified for Round 2 of the competition.
 
     Here is our Round 2 submission: https://drive.google.com/file/d/1PQ3nHGd7UAmqm6GwVQSRwHx-g9iDqkmY/view?usp=drivesdk
+
+ 9. **The Great Indian Marketing Challenge 2025**
+
+     X Hostel Chain aims to build national brand recognition by highlighting unique local experiences without sales pressure. Targeting backpackers, students, digital nomads, and solo travelers, the plan leverages a customer-backward approach focused on social interactions, local vibes, and shareable content. Key pillars include social media micro-videos, experiential pop-ups in metro cities, partnerships with travel apps and airlines, and guest storytelling through PR. Innovative low-cost ideas like a digital “Vibe Passport,” VR hostel tours, local artist murals, and UGC campaigns drive organic buzz. Success will be measured via impressions, shares, media mentions, referrals, and guest surveys, with weekly reviews ensuring continuous refinement.
+
+    Submission link: https://drive.google.com/file/d/1X3V_UpU31UvwxnPXQce6sJdrEp8Xyfbf/view?usp=drivesdk

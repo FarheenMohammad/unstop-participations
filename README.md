@@ -72,3 +72,9 @@ The competition comprised two rounds:
      X Hostel Chain aims to build national brand recognition by highlighting unique local experiences without sales pressure. Targeting backpackers, students, digital nomads, and solo travelers, the plan leverages a customer-backward approach focused on social interactions, local vibes, and shareable content. Key pillars include social media micro-videos, experiential pop-ups in metro cities, partnerships with travel apps and airlines, and guest storytelling through PR. Innovative low-cost ideas like a digital “Vibe Passport,” VR hostel tours, local artist murals, and UGC campaigns drive organic buzz. Success will be measured via impressions, shares, media mentions, referrals, and guest surveys, with weekly reviews ensuring continuous refinement.
 
     Submission link: https://drive.google.com/file/d/1X3V_UpU31UvwxnPXQce6sJdrEp8Xyfbf/view?usp=drivesdk
+
+ 10. **Vitta 2025: Call for Articles**
+
+     This article, written for Vitta 2025, explores the theme “Fintech Revolution.” Rooted in the legacy of the Finance and Investment Cell, Shri Ram College of Commerce, and its flagship publication’s tradition of intellectual inquiry, the piece traces the evolution of financial technology from its origins in the 1960s to the present era of digital finance. It examines key innovations such as ATMs, internet banking, mobile payments, blockchain, and AI-powered financial services, while also addressing regulatory, ethical, and societal challenges. The article aims to offer a comprehensive, research-driven, and forward-looking perspective on how fintech is reshaping global finance and investment, aligning with Vitta’s spirit of curiosity, rigor, and analytical depth.
+
+     Here is my submission: https://drive.google.com/file/d/1RSFFjdW9LxMU5jeo6HKUvsiT--fIoPY5/view?usp=drivesdk

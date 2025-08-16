@@ -63,4 +63,6 @@ The competition comprised two rounds:
 
     ReWeave 2025 is a premier national case competition that challenges participants to rethink supply chains and operations through the lens of sustainability. The competition focuses on transforming traditional business models into sustainable, circular, and efficient systems, balancing environmental impact, cost efficiency, and customer experience.
 
-    Here is my submission for the competition: https://drive.google.com/file/d/1PQ3nHGd7UAmqm6GwVQSRwHx-g9iDqkmY/view?usp=drivesdk
+    I participated as part of a team of 4, and we qualified for Round 2 of the competition.
+
+    Here is our Round 2 submission: https://drive.google.com/file/d/1PQ3nHGd7UAmqm6GwVQSRwHx-g9iDqkmY/view?usp=drivesdk

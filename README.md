@@ -5,8 +5,6 @@ The competition comprised two rounds:
 
    **Round 1:** Executive Summary Submission – Participants analyzed an industry case and submitted a strategic solution addressing key problem areas, including market expansion, product differentiation, go-to-market strategy, and brand positioning for CavinKare’s dairy beverage portfolio.
 
-   Evaluation was based on depth of analysis, creativity, feasibility, and clarity of communication.
-
    I successfully submitted my Round 1 executive summary and am awaiting the shortlisting results for the campus finale.
 
    Submission Link: https://drive.google.com/file/d/109BzNCePiZBBFqODSTqXPZq9BdRryhKc/view?usp=drivesdk
@@ -31,9 +29,7 @@ The competition comprised two rounds:
 
  4. **Sankalan – Article Writing Competition – C.C.S. National Institute of Agricultural Marketing (NIAM), Jaipur**
 
-    Sankalan, part of **Agrovon 2k25**, is an article writing competition celebrating creativity, critical thinking, and impactful storytelling. The 2025 edition offers six diverse topics ranging from resilience and green energy to ESG compliance and water security in agriculture.
-
-    I participated in the competition and submitted my article on the chosen theme, presenting a well-researched and original perspective in line with the guidelines.
+    Sankalan, part of **Agrovon 2k25**, is an article writing competition celebrating creativity, critical thinking, and impactful storytelling. The 2025 edition offers six diverse topics ranging from resilience and green energy to ESG compliance and water security in agriculture. I participated in the competition and submitted my article on the chosen theme, presenting a well-researched and original perspective in line with the guidelines.
 
     Here is my submission: https://drive.google.com/file/d/1VIJit1voQMflebKSEQwrOCML8gvVD3Q-/view?usp=drivesdk
 

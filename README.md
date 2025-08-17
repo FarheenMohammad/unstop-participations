@@ -84,3 +84,9 @@ The competition comprised two rounds:
      I participated in Article Submission for Daily Decode by UnscriptedVani. Daily Decode is the flagship editorial platform that explores trends, founder stories, industry voices, and practical tools for entrepreneurs and professionals. My article, “The Power of Mental Models: Thinking Smarter in a Complex World”, was submitted under The Learning Shelf section where ideas, tools, and resources are shared to help readers think sharper and work smarter.
 
      Here is my submission link: https://drive.google.com/file/d/1ZMm-E4QFelVlAS2IZXUznAwiAzNWITrq/view?usp=drivesdk
+
+ 12. **FinNomal Q3: Call For Articles**
+
+     I participated in FinNomal, the quarterly finance and business magazine by Nalstreet, NALSAR University of Law, which showcases student insights from across India. Past contributors include students from top institutions like IIM Lucknow, IIT Kharagpur, SRCC, and St. Stephen’s College.
+
+     Here is my submission: https://drive.google.com/file/d/12QIwSpHDRNJwPpWIhiUG_8HE6XstvMdH/view?usp=drivesdk

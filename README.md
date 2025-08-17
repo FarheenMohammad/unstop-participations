@@ -86,3 +86,9 @@ The competition comprised two rounds:
      I participated in FinNomal, the quarterly finance and business magazine by Nalstreet, NALSAR University of Law, which showcases student insights from across India. Past contributors include students from top institutions like IIM Lucknow, IIT Kharagpur, SRCC, and St. Stephen’s College.
 
      Here is my submission: https://drive.google.com/file/d/12QIwSpHDRNJwPpWIhiUG_8HE6XstvMdH/view?usp=drivesdk
+
+ 13. **Call for HR Articles: Impressions – August 2025**
+
+     I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points.
+
+     Here is my submission for the competition: https://drive.google.com/file/d/19j3vj2jho-fIcKAmoguteZVL-zldsHpR/view?usp=drivesdk

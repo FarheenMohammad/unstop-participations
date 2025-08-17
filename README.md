@@ -78,3 +78,9 @@ The competition comprised two rounds:
      This article, written for Vitta 2025, explores the theme “Fintech Revolution.” Rooted in the legacy of the Finance and Investment Cell, Shri Ram College of Commerce, and its flagship publication’s tradition of intellectual inquiry, the piece traces the evolution of financial technology from its origins in the 1960s to the present era of digital finance. It examines key innovations such as ATMs, internet banking, mobile payments, blockchain, and AI-powered financial services, while also addressing regulatory, ethical, and societal challenges. The article aims to offer a comprehensive, research-driven, and forward-looking perspective on how fintech is reshaping global finance and investment, aligning with Vitta’s spirit of curiosity, rigor, and analytical depth.
 
      Here is my submission: https://drive.google.com/file/d/1C7G3KyumKsSZo1ceHoGxbyr1ETyNwzwm/view?usp=drivesdk
+
+ 11. **Article Submission for Daily Decode**
+
+     I participated in Article Submission for Daily Decode by UnscriptedVani. Daily Decode is the flagship editorial platform that explores trends, founder stories, industry voices, and practical tools for entrepreneurs and professionals. My article, “The Power of Mental Models: Thinking Smarter in a Complex World”, was submitted under The Learning Shelf section—where ideas, tools, and resources are shared to help readers think sharper and work smarter.
+
+     Here is my submission link: https://drive.google.com/file/d/1ZMm-E4QFelVlAS2IZXUznAwiAzNWITrq/view?usp=drivesdk

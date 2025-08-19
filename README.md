@@ -92,3 +92,9 @@ The competition comprised two rounds:
      I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points.
 
      Here is my submission for the competition: https://drive.google.com/file/d/19j3vj2jho-fIcKAmoguteZVL-zldsHpR/view?usp=drivesdk
+
+ 14. **FinX Magazine – Second Edition**
+
+     FinX Magazine is calling for submissions on the theme Finance, Investing, or Economics. I am contributing my article titled “The Rise of Retail Investors in India: How Technology and Policy Are Reshaping the Markets”, which explores how everyday investors, supported by digital platforms and regulatory reforms, are transforming India’s financial landscape.
+
+     Here is my submission: https://drive.google.com/file/d/1PcOmetfDDe3ch4MzUhY4v5WRGE4m2aka/view?usp=drivesdk

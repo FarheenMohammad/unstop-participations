@@ -98,3 +98,9 @@ The competition comprised two rounds:
      FinX Magazine is calling for submissions on the theme Finance, Investing, or Economics. I am contributing my article titled “The Rise of Retail Investors in India: How Technology and Policy Are Reshaping the Markets”, which explores how everyday investors, supported by digital platforms and regulatory reforms, are transforming India’s financial landscape.
 
      Here is my submission: https://drive.google.com/file/d/1PcOmetfDDe3ch4MzUhY4v5WRGE4m2aka/view?usp=drivesdk
+
+ 15. **Merger Matics**
+
+     I successfully qualified Round 1 of Merger Matics, a national-level M&A competition organized by Finception, the Finance Club of Great Lakes Institute of Management, Gurgaon, securing Rank 4 out of 675 participants in the Finance Lightning Quiz.
+
+     I’ve now submitted my analysis for Round 2: "Against All Odds", where I deep-dived into a real-world merger that defied expectations. You can check out my detailed submission here: https://drive.google.com/file/d/1VnPvJlPrt06oH4z8pUhIFoD1nVdLS39l/view?usp=drivesdk

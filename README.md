@@ -104,3 +104,9 @@ The competition comprised two rounds:
      I successfully qualified Round 1 of Merger Matics, a national-level M&A competition organized by Finception, the Finance Club of Great Lakes Institute of Management, Gurgaon, securing Rank 4 out of 675 participants in the Finance Lightning Quiz.
 
      I’ve now submitted my analysis for Round 2: "Against All Odds", where I deep-dived into a real-world merger that defied expectations. You can check out my detailed submission here: https://drive.google.com/file/d/1VnPvJlPrt06oH4z8pUhIFoD1nVdLS39l/view?usp=drivesdk
+
+ 16. **Startup Spotlight Challenge - 25**
+
+     Participated in Startup Spotlight Challenge - 25, organized by KSIT Entrepreneurship Development Cell – a lightning talk competition where students present innovative startup ideas, fostering entrepreneurial spirit and creating opportunities for mentorship and incubation.
+
+     Here is my submission for Round 1: https://drive.google.com/file/d/1CIRlLx_q3AMGaHHpXBpxJdDZ_W2ZmjkE/view?usp=drivesdk

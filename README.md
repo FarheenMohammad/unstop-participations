@@ -107,6 +107,6 @@ The competition comprised two rounds:
 
  16. **Startup Spotlight Challenge - 25**
 
-     Participated in Startup Spotlight Challenge - 25, organized by KSIT Entrepreneurship Development Cell – a lightning talk competition where students present innovative startup ideas, fostering entrepreneurial spirit and creating opportunities for mentorship and incubation.
+     Participated in Startup Spotlight Challenge - 25, organized by KSIT Entrepreneurship Development Cell - a lightning talk competition where students present innovative startup ideas, fostering entrepreneurial spirit and creating opportunities for mentorship and incubation.
 
      Here is my submission for Round 1: https://drive.google.com/file/d/1CIRlLx_q3AMGaHHpXBpxJdDZ_W2ZmjkE/view?usp=drivesdk

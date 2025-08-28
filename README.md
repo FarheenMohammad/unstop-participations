@@ -116,3 +116,8 @@ The competition comprised two rounds:
      I participated in “The Marketing Showdown 2025”, a Pan-India case competition organized by MarkTrix – The Marketing Club of SJMSOM, IIT Bombay, in collaboration with Nasher Miles. The competition challenged participants to solve real-world business problems through creative strategies, data-driven insights, and impactful storytelling.
 
 Here is my Round 2 Case Study Submission: https://drive.google.com/file/d/1WraxC3XC_M-x1hGkTGE26sVDKl8YMqaG/view?usp=drivesdk
+
+ 18. **Greenovate'25**
+     I participated in Greenovate’25, a sustainability-focused case competition addressing Delhi’s waste crisis at the Ghazipur landfill. Out of 369 registered students, I secured Rank 2 in Round 1 and qualified for Round 2, where I submitted an innovative waste management action plan.
+
+     Here is my Round 2 submission: https://drive.google.com/file/d/1ObKFWcReLm4BVaBQgW2QIN9R7IbA2OCO/view?usp=drivesdk

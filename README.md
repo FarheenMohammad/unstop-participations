@@ -78,3 +78,6 @@ The competition comprised two rounds:
  19. **Greenovate'25**
      I participated in Greenovate’25, a sustainability-focused case competition addressing Delhi’s waste crisis at the Ghazipur landfill. Out of 369 registered students, I secured Rank 2 in Round 1 and qualified for Round 2, where I submitted an innovative waste management action plan.
      Here is my Round 2 submission: https://drive.google.com/file/d/1ObKFWcReLm4BVaBQgW2QIN9R7IbA2OCO/view?usp=drivesdk
+
+ 20. **X-ITE 2025 – National Article Writing Competition** - Organized by Xavier Institute of Management (XIMB), Bhubaneswar
+     I’m excited to share my submission for X-ITE 2025, a national-level article writing competition. The theme for this year is “AI as the New Strategy Officer: Shaping Competitive Advantage in a New World Order.” My article explores how AI is redefining corporate strategy, enabling businesses to adapt, innovate, and thrive in an increasingly volatile global environment. Here is my submission link: https://drive.google.com/file/d/1mMiOftI74iIFaIITZtcXCHsnRXEfGD5z/view?usp=drivesdk

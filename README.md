@@ -110,3 +110,9 @@ The competition comprised two rounds:
      Participated in Startup Spotlight Challenge - 25, organized by KSIT Entrepreneurship Development Cell - a lightning talk competition where students present innovative startup ideas, fostering entrepreneurial spirit and creating opportunities for mentorship and incubation.
 
      Here is my submission for Round 1: https://drive.google.com/file/d/1CIRlLx_q3AMGaHHpXBpxJdDZ_W2ZmjkE/view?usp=drivesdk
+
+ 17. **The Marketing Showdown 2025**
+
+     I participated in “The Marketing Showdown 2025”, a Pan-India case competition organized by MarkTrix – The Marketing Club of SJMSOM, IIT Bombay, in collaboration with Nasher Miles. The competition challenged participants to solve real-world business problems through creative strategies, data-driven insights, and impactful storytelling.
+
+Here is my Round 2 Case Study Submission: https://drive.google.com/file/d/1WraxC3XC_M-x1hGkTGE26sVDKl8YMqaG/view?usp=drivesdk

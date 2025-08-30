@@ -84,3 +84,7 @@ The competition comprised two rounds:
 
  21. **CaseForge 2025 – A Case Study Competition**
      CaseForge 2025, hosted by the Entrepreneurship Cell, IIT Kharagpur in association with Masters’ Union, is a high-impact strategic case competition that immerses participants in the decision-making challenges faced by early-stage startups. The competition focuses on real-world dilemmas such as go-to-market strategies, pricing models, and the critical “pivot-or-persevere” crossroad. Participants are expected to analyze comprehensive startup case narratives, interpret financial and operational data, and design bold yet actionable strategies. Aimed at analytical thinkers, aspiring founders, and problem-solvers, CaseForge emphasizes structured decision-making, creative problem-solving, and clarity of thought under constraints. Here is my submission link for Round 1: https://drive.google.com/file/d/16Hw8QyEVKFd4dTC-qxDMqH76Bv8dfm96/view?usp=drivesdk
+
+ 22. **Call for Articles – IT Newsletter**
+     My article “Smart Celebrations: How AI and E-Commerce Power Festive India” highlights how technology is transforming the way India celebrates festivals. It explores the role of AI, e-commerce, digital payments, and sustainable startups in blending tradition with innovation, making celebrations more inclusive, convenient, and eco-friendly in the era of Digital India.
+     Attached is my article for consideration: https://drive.google.com/file/d/1JXULETmRvvq-0i_IEncwRHByeyDPi0IS/view?usp=drivesdk

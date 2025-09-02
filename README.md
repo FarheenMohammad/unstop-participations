@@ -88,3 +88,7 @@ The competition comprised two rounds:
  22. **Call for Articles – IT Newsletter**
      My article “Smart Celebrations: How AI and E-Commerce Power Festive India” highlights how technology is transforming the way India celebrates festivals. It explores the role of AI, e-commerce, digital payments, and sustainable startups in blending tradition with innovation, making celebrations more inclusive, convenient, and eco-friendly in the era of Digital India.
      Attached is my article for consideration: https://drive.google.com/file/d/1JXULETmRvvq-0i_IEncwRHByeyDPi0IS/view?usp=drivesdk
+
+ 23. **Call For Articles: Econ 101 (September Edition)**
+     I am glad to share that I participated in the Econ 101 – September 2025 Edition, the monthly magazine of A₹thashastra, the Economics Club of IIM Rohtak. The call for articles invited contributions from students, corporates, professors, and research scholars across India on original topics related to Economics, with exclusive submissions for IIM Rohtak.
+     Here is my submission link: https://drive.google.com/file/d/1cADOJOWXvVG9TEjapQr_JRDorgPsfw82/view?usp=drivesdk

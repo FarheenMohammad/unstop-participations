@@ -58,6 +58,7 @@ The competition comprised two rounds:
  13. **Call for HR Articles: Impressions – August 2025**
      I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points. I am happy to share that my article stood as a Runner-up in this competition.
      Here is my submission for the competition: https://drive.google.com/file/d/19j3vj2jho-fIcKAmoguteZVL-zldsHpR/view?usp=drivesdk
+
      Checkout my LinkedIn post: https://www.linkedin.com/posts/farheen-naz-mohammad_writing-futureofwork-iimrohtak-activity-7367864871578759168-yGJk?utm_source=share&utm_medium=member_desktop&rcm=ACoAAENN4_EBdzvXB52a6Um2b4_sQRtUX-QwNWw
 
  15. **FinX Magazine – Second Edition**

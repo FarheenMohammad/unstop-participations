@@ -56,41 +56,41 @@ The competition comprised two rounds:
      Here is my submission: https://drive.google.com/file/d/12QIwSpHDRNJwPpWIhiUG_8HE6XstvMdH/view?usp=drivesdk
 
  13. **Call for HR Articles: Impressions – August 2025**
-     I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points. I am happy to share that my article stood as a Runner-up in this competition.
+     I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points. I am happy to share that my article stood as a **Runner-up** in this competition.
      Here is my submission for the competition: https://drive.google.com/file/d/19j3vj2jho-fIcKAmoguteZVL-zldsHpR/view?usp=drivesdk
 
      Checkout my LinkedIn post: https://www.linkedin.com/posts/farheen-naz-mohammad_writing-futureofwork-iimrohtak-activity-7367864871578759168-yGJk?utm_source=share&utm_medium=member_desktop&rcm=ACoAAENN4_EBdzvXB52a6Um2b4_sQRtUX-QwNWw
 
- 15. **FinX Magazine – Second Edition**
+ 14. **FinX Magazine – Second Edition**
      FinX Magazine is calling for submissions on the theme Finance, Investing, or Economics. I am contributing my article titled “The Rise of Retail Investors in India: How Technology and Policy Are Reshaping the Markets”, which explores how everyday investors, supported by digital platforms and regulatory reforms, are transforming India’s financial landscape.
      Here is my submission: https://drive.google.com/file/d/1PcOmetfDDe3ch4MzUhY4v5WRGE4m2aka/view?usp=drivesdk
 
- 16. **Merger Matics**
+ 15. **Merger Matics**
      I successfully qualified Round 1 of Merger Matics, a national-level M&A competition organized by Finception, the Finance Club of Great Lakes Institute of Management, Gurgaon, securing Rank 4 out of 675 participants in the Finance Lightning Quiz.
      I’ve now submitted my analysis for Round 2: "Against All Odds", where I deep-dived into a real-world merger that defied expectations. You can check out my detailed submission here: https://drive.google.com/file/d/1VnPvJlPrt06oH4z8pUhIFoD1nVdLS39l/view?usp=drivesdk
 
- 17. **Startup Spotlight Challenge - 25**
+ 16. **Startup Spotlight Challenge - 25**
      Participated in Startup Spotlight Challenge - 25, organized by KSIT Entrepreneurship Development Cell - a lightning talk competition where students present innovative startup ideas, fostering entrepreneurial spirit and creating opportunities for mentorship and incubation.
      Here is my submission for Round 1: https://drive.google.com/file/d/1CIRlLx_q3AMGaHHpXBpxJdDZ_W2ZmjkE/view?usp=drivesdk
 
- 18. **The Marketing Showdown 2025**
+ 17. **The Marketing Showdown 2025**
      I participated in “The Marketing Showdown 2025”, a Pan-India case competition organized by MarkTrix – The Marketing Club of SJMSOM, IIT Bombay, in collaboration with Nasher Miles. The competition challenged participants to solve real-world business problems through creative strategies, data-driven insights, and impactful storytelling.
      Here is my Round 2 Case Study Submission: https://drive.google.com/file/d/1WraxC3XC_M-x1hGkTGE26sVDKl8YMqaG/view?usp=drivesdk
 
- 19. **Greenovate'25**
+ 18. **Greenovate'25**
      I participated in Greenovate’25, a sustainability-focused case competition addressing Delhi’s waste crisis at the Ghazipur landfill. Out of 369 registered students, I secured Rank 2 in Round 1 and qualified for Round 2, where I submitted an innovative waste management action plan.
      Here is my Round 2 submission: https://drive.google.com/file/d/1ObKFWcReLm4BVaBQgW2QIN9R7IbA2OCO/view?usp=drivesdk
 
- 20. **X-ITE 2025 – National Article Writing Competition** - Organized by Xavier Institute of Management (XIMB), Bhubaneswar
+ 19. **X-ITE 2025 – National Article Writing Competition** - Organized by Xavier Institute of Management (XIMB), Bhubaneswar
      I’m excited to share my submission for X-ITE 2025, a national-level article writing competition. The theme for this year is “AI as the New Strategy Officer: Shaping Competitive Advantage in a New World Order.” My article explores how AI is redefining corporate strategy, enabling businesses to adapt, innovate, and thrive in an increasingly volatile global environment. Here is my submission link: https://drive.google.com/file/d/1mMiOftI74iIFaIITZtcXCHsnRXEfGD5z/view?usp=drivesdk
 
- 21. **CaseForge 2025 – A Case Study Competition**
+ 20. **CaseForge 2025 – A Case Study Competition**
      CaseForge 2025, hosted by the Entrepreneurship Cell, IIT Kharagpur in association with Masters’ Union, is a high-impact strategic case competition that immerses participants in the decision-making challenges faced by early-stage startups. The competition focuses on real-world dilemmas such as go-to-market strategies, pricing models, and the critical “pivot-or-persevere” crossroad. Participants are expected to analyze comprehensive startup case narratives, interpret financial and operational data, and design bold yet actionable strategies. Aimed at analytical thinkers, aspiring founders, and problem-solvers, CaseForge emphasizes structured decision-making, creative problem-solving, and clarity of thought under constraints. Here is my submission link for Round 1: https://drive.google.com/file/d/16Hw8QyEVKFd4dTC-qxDMqH76Bv8dfm96/view?usp=drivesdk
 
- 22. **Call for Articles – IT Newsletter**
+ 21. **Call for Articles – IT Newsletter**
      My article “Smart Celebrations: How AI and E-Commerce Power Festive India” highlights how technology is transforming the way India celebrates festivals. It explores the role of AI, e-commerce, digital payments, and sustainable startups in blending tradition with innovation, making celebrations more inclusive, convenient, and eco-friendly in the era of Digital India.
      Attached is my article for consideration: https://drive.google.com/file/d/1JXULETmRvvq-0i_IEncwRHByeyDPi0IS/view?usp=drivesdk
 
- 23. **Call For Articles: Econ 101 (September Edition)**
+ 22. **Call For Articles: Econ 101 (September Edition)**
      I am glad to share that I participated in the Econ 101 – September 2025 Edition, the monthly magazine of A₹thashastra, the Economics Club of IIM Rohtak. The call for articles invited contributions from students, corporates, professors, and research scholars across India on original topics related to Economics, with exclusive submissions for IIM Rohtak.
      Here is my submission link: https://drive.google.com/file/d/1cADOJOWXvVG9TEjapQr_JRDorgPsfw82/view?usp=drivesdk

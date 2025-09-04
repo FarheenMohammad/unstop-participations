@@ -56,22 +56,23 @@ The competition comprised two rounds:
      Here is my submission: https://drive.google.com/file/d/12QIwSpHDRNJwPpWIhiUG_8HE6XstvMdH/view?usp=drivesdk
 
  13. **Call for HR Articles: Impressions – August 2025**
-     I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points.
+     I participated in this article writing call organized under the theme “Beyond the Job Title: HR and the Future of Work Identity.” The competition invited original, research-driven, and creative submissions (1000–1500 words), with a strong emphasis on structure and innovative thinking. Infographic illustrations were encouraged for bonus points. I am happy to share that my article stood as a Runner-up in this competition.
      Here is my submission for the competition: https://drive.google.com/file/d/19j3vj2jho-fIcKAmoguteZVL-zldsHpR/view?usp=drivesdk
+     Checkout my LinkedIn post: https://www.linkedin.com/posts/farheen-naz-mohammad_writing-futureofwork-iimrohtak-activity-7367864871578759168-yGJk?utm_source=share&utm_medium=member_desktop&rcm=ACoAAENN4_EBdzvXB52a6Um2b4_sQRtUX-QwNWw
 
- 14. **FinX Magazine – Second Edition**
+ 15. **FinX Magazine – Second Edition**
      FinX Magazine is calling for submissions on the theme Finance, Investing, or Economics. I am contributing my article titled “The Rise of Retail Investors in India: How Technology and Policy Are Reshaping the Markets”, which explores how everyday investors, supported by digital platforms and regulatory reforms, are transforming India’s financial landscape.
      Here is my submission: https://drive.google.com/file/d/1PcOmetfDDe3ch4MzUhY4v5WRGE4m2aka/view?usp=drivesdk
 
- 15. **Merger Matics**
+ 16. **Merger Matics**
      I successfully qualified Round 1 of Merger Matics, a national-level M&A competition organized by Finception, the Finance Club of Great Lakes Institute of Management, Gurgaon, securing Rank 4 out of 675 participants in the Finance Lightning Quiz.
      I’ve now submitted my analysis for Round 2: "Against All Odds", where I deep-dived into a real-world merger that defied expectations. You can check out my detailed submission here: https://drive.google.com/file/d/1VnPvJlPrt06oH4z8pUhIFoD1nVdLS39l/view?usp=drivesdk
 
- 16. **Startup Spotlight Challenge - 25**
+ 17. **Startup Spotlight Challenge - 25**
      Participated in Startup Spotlight Challenge - 25, organized by KSIT Entrepreneurship Development Cell - a lightning talk competition where students present innovative startup ideas, fostering entrepreneurial spirit and creating opportunities for mentorship and incubation.
      Here is my submission for Round 1: https://drive.google.com/file/d/1CIRlLx_q3AMGaHHpXBpxJdDZ_W2ZmjkE/view?usp=drivesdk
 
- 17. **The Marketing Showdown 2025**
+ 18. **The Marketing Showdown 2025**
      I participated in “The Marketing Showdown 2025”, a Pan-India case competition organized by MarkTrix – The Marketing Club of SJMSOM, IIT Bombay, in collaboration with Nasher Miles. The competition challenged participants to solve real-world business problems through creative strategies, data-driven insights, and impactful storytelling.
      Here is my Round 2 Case Study Submission: https://drive.google.com/file/d/1WraxC3XC_M-x1hGkTGE26sVDKl8YMqaG/view?usp=drivesdk
 

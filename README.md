@@ -94,3 +94,7 @@ The competition comprised two rounds:
  22. **Call For Articles: Econ 101 (September Edition)**
      I am glad to share that I participated in the Econ 101 – September 2025 Edition, the monthly magazine of A₹thashastra, the Economics Club of IIM Rohtak. The call for articles invited contributions from students, corporates, professors, and research scholars across India on original topics related to Economics, with exclusive submissions for IIM Rohtak.
      Here is my submission link: https://drive.google.com/file/d/1cADOJOWXvVG9TEjapQr_JRDorgPsfw82/view?usp=drivesdk
+
+ 23. **HSpectrum Article Competition**
+     I participated in the HSpectrum September Article Competition, themed “One Use of AI to Support Women’s Health.” The competition invited innovative and original perspectives from students, researchers, and AI enthusiasts, with a focus on critical thinking and real-world impact.
+     Here is my submission: https://drive.google.com/file/d/1XCyU4m_e_kSDUXAgZc6PX_jx5YkBk5Tk/view?usp=drivesdk
